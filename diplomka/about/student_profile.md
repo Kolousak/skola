@@ -1,0 +1,1 @@
+Je mi pod 30 let. a studuju vysokou školu
